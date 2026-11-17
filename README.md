@@ -1,0 +1,2 @@
+# chut
+Yo sup gng! 
